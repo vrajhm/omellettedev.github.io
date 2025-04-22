@@ -24,6 +24,63 @@ Stay tuned—we’ll be revealing them here with art and bios.
 
 This world wouldn't exist without our amazing artists. Here's who's bringing it to life:
 
+### Writer
+
+**[Oneka Singh]**
+📧 [onekasingh@gmail.com]  
+🖼️ [LinkedIn](https://www.linkedin.com/in/oneka-singh-924360296/)
+
+### Storyboarders
+
+**[Mayar Silverman]**
+📧 [mayarsilverman@gmail.com]  
+
+**[Brook Jiang]**
+📧 [brookjiang0@gmail.com]  
+🖼️ [Portfolio](https://brookriver.carrd.co/)
+
+**[Afton Kohl]**
+📧 [afton.kohl@sjsu.edu]  
+🖼️ [Portfolio](https://www.instagram.com/aftiroonni/)
+
+**[Alex Gonzalez]**
+📧 [alexandria.d.gonzalez@sjsu.edu]
+
+### Inker
+
+**[Lucy Manzo]**
+📧 [lucy.manzo@sjsu.edu]
+🖼️ [Portfolio](https://www.instagram.com/slightlyghoulish)
+
+**[Kate Kanemura]**
+📧 [kate.kanemura@sjsu.edu]
+
+
+### Colorist
+**[Yuni Zhu]**
+📧 [yuni.zhu@sjsu.edu]
+
+**[Lily Thavy]**
+📧 [lily.thavy@sjsu.edu]
+🖼️ [Portfolio](https://lilythavy.weebly.com/)
+
+### Compositer
+
+**[Lyka Ilano]**
+📧 [lily.thavy@sjsu.edu]
+🖼️ [Portfolio](https://gummymela.carrd.co/)
+
+### Background Artists
+
+**[Lily Thavy]**
+📧 [lily.thavy@sjsu.edu]
+🖼️ [Portfolio](https://lilythavy.weebly.com/)
+
+**[Irene Xu]**
+📧 [irene.xu@sjsu.edu]
+
+**[Martha]**
+📧 [2MarieAK@gmail.com]
 
 ---
 
@@ -37,7 +94,7 @@ We’ll be showcasing a lot of our concept art, in-game screenshots, and behind-
 
 Got questions, feedback, or just want to say hi? Reach out to us:
 
-📧 General Contact: [yourteam@email.com]
+📧 General Contact: omellettedev@gmail.com
 
 ---
 
