@@ -46,9 +46,8 @@ This world wouldn't exist without our amazing creative team. Meet the artists br
 
 ---
 
-### 🎨 Colorists  
+### 🎨 Colorist  
 **Yuni Zhu** — 📧 yuni.zhu@sjsu.edu  
-**Lily Thavy** — 📧 lily.thavy@sjsu.edu • 🔗 [Portfolio](https://lilythavy.weebly.com/)
 
 ---
 
@@ -61,7 +60,7 @@ This world wouldn't exist without our amazing creative team. Meet the artists br
 **Lily Thavy** — 📧 lily.thavy@sjsu.edu • 🔗 [Portfolio](https://lilythavy.weebly.com/)  
 **Irene Xu** — 📧 irene.xu@sjsu.edu  
 **Martha** — 📧 2MarieAK@gmail.com
-
+**Lily Thavy** — 📧 lily.thavy@sjsu.edu • 🔗 [Portfolio](https://lilythavy.weebly.com/)
 
 ---
 
