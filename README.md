@@ -22,65 +22,46 @@ Stay tuned—we’ll be revealing them here with art and bios.
 
 ## 🎨 Our Artists
 
-This world wouldn't exist without our amazing artists. Here's who's bringing it to life:
+This world wouldn't exist without our amazing creative team. Meet the artists bringing our game to life:
 
-### Writer
+---
 
-**[Oneka Singh]**
-📧 [onekasingh@gmail.com]  
-🖼️ [LinkedIn](https://www.linkedin.com/in/oneka-singh-924360296/)
+### ✍️ Writer  
+**Oneka Singh**  
+📧 onekasingh@gmail.com • 🔗 [LinkedIn](https://www.linkedin.com/in/oneka-singh-924360296/)
 
-### Storyboarders
+---
 
-**[Mayar Silverman]**
-📧 [mayarsilverman@gmail.com]  
+### 🎞️ Storyboard Artists  
+**Mayar Silverman** — 📧 mayarsilverman@gmail.com  
+**Brook Jiang** — 📧 brookjiang0@gmail.com • 🔗 [Portfolio](https://brookriver.carrd.co/)  
+**Afton Kohl** — 📧 afton.kohl@sjsu.edu • 🔗 [Instagram](https://www.instagram.com/aftiroonni/)  
+**Alex Gonzalez** — 📧 alexandria.d.gonzalez@sjsu.edu
 
-**[Brook Jiang]**
-📧 [brookjiang0@gmail.com]  
-🖼️ [Portfolio](https://brookriver.carrd.co/)
+---
 
-**[Afton Kohl]**
-📧 [afton.kohl@sjsu.edu]  
-🖼️ [Portfolio](https://www.instagram.com/aftiroonni/)
+### ✒️ Inkers  
+**Lucy Manzo** — 📧 lucy.manzo@sjsu.edu • 🔗 [Instagram](https://www.instagram.com/slightlyghoulish)  
+**Kate Kanemura** — 📧 kate.kanemura@sjsu.edu
 
-**[Alex Gonzalez]**
-📧 [alexandria.d.gonzalez@sjsu.edu]
+---
 
-### Inker
+### 🎨 Colorists  
+**Yuni Zhu** — 📧 yuni.zhu@sjsu.edu  
+**Lily Thavy** — 📧 lily.thavy@sjsu.edu • 🔗 [Portfolio](https://lilythavy.weebly.com/)
 
-**[Lucy Manzo]**
-📧 [lucy.manzo@sjsu.edu]
-🖼️ [Portfolio](https://www.instagram.com/slightlyghoulish)
+---
 
-**[Kate Kanemura]**
-📧 [kate.kanemura@sjsu.edu]
+### 🧩 Compositor  
+**Lyka Ilano** — 📧 lily.thavy@sjsu.edu • 🔗 [Portfolio](https://gummymela.carrd.co/)
 
+---
 
-### Colorist
-**[Yuni Zhu]**
-📧 [yuni.zhu@sjsu.edu]
+### 🌆 Background Artists  
+**Lily Thavy** — 📧 lily.thavy@sjsu.edu • 🔗 [Portfolio](https://lilythavy.weebly.com/)  
+**Irene Xu** — 📧 irene.xu@sjsu.edu  
+**Martha** — 📧 2MarieAK@gmail.com
 
-**[Lily Thavy]**
-📧 [lily.thavy@sjsu.edu]
-🖼️ [Portfolio](https://lilythavy.weebly.com/)
-
-### Compositer
-
-**[Lyka Ilano]**
-📧 [lily.thavy@sjsu.edu]
-🖼️ [Portfolio](https://gummymela.carrd.co/)
-
-### Background Artists
-
-**[Lily Thavy]**
-📧 [lily.thavy@sjsu.edu]
-🖼️ [Portfolio](https://lilythavy.weebly.com/)
-
-**[Irene Xu]**
-📧 [irene.xu@sjsu.edu]
-
-**[Martha]**
-📧 [2MarieAK@gmail.com]
 
 ---
 
